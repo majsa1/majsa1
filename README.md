@@ -7,4 +7,4 @@ Hi there, I'm Marjo 👋
 - 💬 Ask me about my projects if you want to know more!
 - 📫 How to reach me: send me an email at majsa1@icloud.com or see my LinkedIn profile at https://www.linkedin.com/in/marjosalo/
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I consider myself a social introvert
+- ⚡ Fun fact: I keep shrimp as pets
